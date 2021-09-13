@@ -1,4 +1,5 @@
-![Nixel Art Logo (Final para GIF)](https://user-images.githubusercontent.com/53615215/133146614-11aaba1b-9ca5-461c-a8c7-c70d88d6b4c3.gif)
+![23-) Nixel Art Logo (Final) (396x306)](https://user-images.githubusercontent.com/53615215/133146771-fed5b235-385d-4e05-b597-c4b27063a5ae.gif)
+
 
 
 O nome "Nixel-Art" é uma fusão de nomes "Nick" (um dos meus apelidos) e "Pixel Art".
