@@ -1,4 +1,5 @@
-![23-) Nixel Art Logo (Final) (396x306)](https://user-images.githubusercontent.com/53615215/133146771-fed5b235-385d-4e05-b597-c4b27063a5ae.gif)
+![29-) Nixel Art Logo (Final v 2)](https://user-images.githubusercontent.com/53615215/133148479-8d7e5e08-f11a-4599-87c3-35d0f64a91d9.gif)
+
 
 
 
