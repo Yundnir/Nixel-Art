@@ -21,3 +21,4 @@ no Piskel, consegui resgatar meus trabalhos.
 
    
 ![32-) eu (Pixel Art v 3) GIF (160x160)](https://user-images.githubusercontent.com/53615215/133825949-e21bf00d-6974-4bee-a5e2-c23b3a202fd6.gif)
+    - Nicolas Campos de Carvalho
