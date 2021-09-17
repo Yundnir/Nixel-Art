@@ -14,5 +14,7 @@ Essas artes foram feitas no programa/site chamado "Piskel" no PC.
 Atualmente me encontro sem PC/Notebook, mas por eu possuir uma conta (ainda existente) 
 no Piskel, consegui resgatar meus trabalhos.
 
-![31-) eu (Pixel Art v 2) (777x777)](https://user-images.githubusercontent.com/53615215/133822619-94d19c4f-366c-43d2-93a0-b28e445c3080.png)
-                                                                - Nicolas Campos de Carvalho.
+
+
+           ![31-) eu (Pixel Art v 2) (32x32)](https://user-images.githubusercontent.com/53615215/133822780-86ceaa82-315e-43d2-974d-459423306506.png)
+                                                     - Nicolas Campos de Carvalho.
