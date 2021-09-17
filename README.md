@@ -16,6 +16,7 @@ no Piskel, consegui resgatar meus trabalhos.
 
 
 
-![31-) eu (Pixel Art v 2) (32x32)](https://user-images.githubusercontent.com/53615215/133823057-172252bd-424a-41cd-b79d-54988fbbb26e.png)
+
+![31-) eu (Pixel Art v 2) (160x160)](https://user-images.githubusercontent.com/53615215/133823247-f9ed0cc2-ad74-4918-a8a5-905c086cfec6.png)
 
                                                      - Nicolas Campos de Carvalho.
