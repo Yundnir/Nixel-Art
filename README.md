@@ -1,4 +1,5 @@
-![29-) Nixel Art Logo (Final v 2)](https://user-images.githubusercontent.com/53615215/133148479-8d7e5e08-f11a-4599-87c3-35d0f64a91d9.gif)
+![23-) Nixel Art Logo (Final) piskel 5)](https://user-images.githubusercontent.com/53615215/133826661-82319fac-ecf0-4ab9-b50a-fe97125eb217.gif)
+
 
 
 
