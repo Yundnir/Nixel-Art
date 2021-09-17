@@ -15,4 +15,6 @@ Atualmente me encontro sem PC/Notebook, mas por eu possuir uma conta (ainda exis
 no Piskel, consegui resgatar meus trabalhos.
 
 
+   - Nicolas Campos de Carvalho
+
    ![31-) eu (Pixel Art v 2) (160x160)](https://user-images.githubusercontent.com/53615215/133823648-90a9d7e2-e207-401e-853d-6715245de4ab.png)
