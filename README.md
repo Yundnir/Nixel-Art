@@ -12,8 +12,8 @@ demonstrando meu desenvolvimento anterior e desenvolver meu potencial atual.
 
 Essas artes foram feitas no programa/site chamado "Piskel" no PC.
 
-Atualmente me encontro sem PC/Notebook, mas por eu possuir uma conta (ainda existente) 
-no Piskel, consegui resgatar meus trabalhos.
+Retornando as atividades aos poucos com o meu Notebook de volta, e pretendo iniciar o
+caminho de desenvolvimento do Tutorial MiniBoss no início do ano de 2022.
 
 
    
